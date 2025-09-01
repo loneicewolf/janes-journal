@@ -1,2 +1,2 @@
 # Janes-Diary-Book
-my Notebook
+my own Notebook! for my life,etc,so yea
